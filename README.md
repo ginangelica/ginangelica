@@ -1,3 +1,3 @@
-### Hi There...!
+### Hi There...! 😄
 
 *Just getting started* :sparkles:
